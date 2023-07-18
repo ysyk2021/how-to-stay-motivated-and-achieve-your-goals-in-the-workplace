@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter: Conclusion
-===================
-
 Recap of key takeaways
 ----------------------
 

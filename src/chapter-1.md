@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In today's fast-paced and competitive workplace, staying motivated and achieving goals is essential for success. In this chapter, we will discuss the importance of staying motivated and achieving goals in the workplace.
 

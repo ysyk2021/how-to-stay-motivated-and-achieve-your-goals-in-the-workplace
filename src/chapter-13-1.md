@@ -1,5 +1,3 @@
-Recap of Key Takeaways
-==================================
 
 As we come to the end of "How to Stay Motivated and Achieve Your Goals in the Workplace", let's recap some of the key takeaways from this book:
 

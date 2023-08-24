@@ -1,5 +1,3 @@
-Chapter 11: Incorporating Motivational Practices into Company Culture and Practices
-===================================================================================
 
 Incorporating motivational practices into company culture and practices is essential for creating a positive work environment and achieving organizational success. In this chapter, we will discuss the importance of incorporating motivational practices into company culture and practices, techniques for integrating these practices into decision-making, operations, and governance.
 

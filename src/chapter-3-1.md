@@ -1,4 +1,3 @@
-# Overview of Setting SMART Goals
 
 Setting goals is a powerful strategy for staying motivated and achieving success in the workplace. However, merely having goals is not enough. To maximize your chances of success, it is essential to set SMART goals. SMART is an acronym that stands for Specific, Measurable, Achievable, Relevant, and Time-bound. This chapter provides an overview of setting SMART goals and how they can contribute to your motivation and goal attainment.
 

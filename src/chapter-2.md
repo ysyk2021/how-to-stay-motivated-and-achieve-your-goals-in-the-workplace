@@ -1,5 +1,3 @@
-Chapter 2: Understanding Motivation
-===================================
 
 Understanding motivation is essential for achieving success in the workplace. Motivation is the driving force behind our actions and behaviors, influencing how we approach tasks, overcome challenges, and achieve our goals. In this chapter, we will discuss the definition of motivation and the benefits of staying motivated for individuals and organizations.
 

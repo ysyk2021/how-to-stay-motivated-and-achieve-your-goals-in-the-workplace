@@ -1,5 +1,3 @@
-Chapter 9: Measuring and Evaluating Motivation and Goal Achievement
-===================================================================
 
 Measuring and evaluating motivation and goal achievement is critical for achieving success in the workplace. In this chapter, we will explore the importance of measuring and evaluating motivation and goal achievement, as well as techniques for collecting data, analyzing results, and using feedback to inform future strategies.
 

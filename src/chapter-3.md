@@ -1,5 +1,3 @@
-Chapter 3: Setting SMART Goals
-==============================
 
 Setting SMART goals is essential for staying motivated and achieving success in the workplace. In this chapter, we will discuss the overview of setting SMART goals, strategies for identifying priorities, creating action plans, and tracking progress.
 

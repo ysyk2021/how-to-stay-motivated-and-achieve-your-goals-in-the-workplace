@@ -1,4 +1,3 @@
-# Definition of Motivation
 
 Motivation is a fundamental aspect of human behavior and plays a crucial role in driving individual performance and achievement. In the workplace, understanding the concept of motivation is essential for both employees and employers to create a productive and engaging work environment.
 

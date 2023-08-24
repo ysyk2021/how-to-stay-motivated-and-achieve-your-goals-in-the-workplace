@@ -1,5 +1,3 @@
-Chapter 8: Cultivating a Supportive Work Environment
-====================================================
 
 Cultivating a supportive work environment is essential for staying motivated and achieving goals in the workplace. In this chapter, we will discuss the importance of cultivating a supportive work environment, techniques for building strong relationships with colleagues, promoting teamwork, and recognizing achievements.
 

@@ -1,4 +1,3 @@
-# Tracking Progress and Celebrating Successes
 
 In this chapter, we will explore the importance of tracking progress and celebrating successes as you strive to stay motivated and achieve your goals in the workplace. By implementing effective tracking strategies and celebrating your achievements, you can maintain momentum and enhance your overall sense of accomplishment.
 

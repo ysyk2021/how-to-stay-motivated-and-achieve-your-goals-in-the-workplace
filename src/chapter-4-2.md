@@ -1,4 +1,3 @@
-# Techniques for Building Self-Confidence, Practicing Positive Self-Talk, and Embracing Challenges
 
 In this chapter, we will explore techniques that can help you build self-confidence, practice positive self-talk, and embrace challenges to stay motivated and achieve your goals in the workplace.
 

@@ -1,5 +1,3 @@
-Chapter 6: Building Resilience and Overcoming Obstacles
-=======================================================
 
 Building resilience and overcoming obstacles is essential for staying motivated and achieving goals in the workplace. In this chapter, we will discuss the importance of building resilience and overcoming obstacles, techniques for reframing setbacks, seeking support, and learning from failures.
 

@@ -1,5 +1,3 @@
-Chapter 12: Implementation Strategies for Lasting Change
-========================================================
 
 Staying motivated and achieving goals in the workplace requires ongoing effort and commitment. In this chapter, we will explore implementation strategies for creating lasting change.
 

@@ -1,5 +1,3 @@
-Chapter 4: Developing a Motivational Mindset
-============================================
 
 Developing a motivational mindset is essential for staying motivated and achieving goals in the workplace. In this chapter, we will discuss the importance of developing a motivational mindset, techniques for building self-confidence, practicing positive self-talk, and embracing challenges.
 

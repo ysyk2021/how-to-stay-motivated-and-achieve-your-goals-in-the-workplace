@@ -1,5 +1,3 @@
-Chapter 5: Managing Time and Priorities
-=======================================
 
 Managing time and priorities is essential for staying motivated and achieving goals in the workplace. In this chapter, we will explore an overview of managing time and priorities in the workplace, as well as strategies for scheduling effectively, delegating tasks, and managing distractions.
 

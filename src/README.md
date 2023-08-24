@@ -1,5 +1,4 @@
 
-
 Welcome to "How to Stay Motivated and Achieve Your Goals in the Workplace." This book is designed to provide you with practical strategies and tools that will help you stay motivated and achieve your goals within a professional setting. Regardless of your current position or industry, maintaining motivation can sometimes be challenging.
 
 In today's fast-paced and competitive work environments, it's crucial to develop effective techniques to navigate through obstacles and maintain a positive mindset. This book aims to equip you with the necessary skills and mindset to overcome challenges, enhance your productivity, and attain success in your career.
